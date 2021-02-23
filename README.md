@@ -1,1 +1,2 @@
-# projects
+Since Rollanet.org has closed shop, this is my temporary "home".  I hope to get a new host soon, but that can be a relative term...
+Cheers
